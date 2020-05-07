@@ -1,1 +1,1 @@
-# yr.maks.github.com
+# yrmaks.github.io
